@@ -20,7 +20,7 @@ According to the student handbook (2015 version),
 
 ### Handwritten notes
 
-![image-20181214163421648](../../../../Library/Application Support/typora-user-images/image-20181214163421648.png)
+![image-20181214163421648](https://ws1.sinaimg.cn/large/006tNbRwly1fy6d13j0muj30tk0ioaeq.jpg)
 
 ---
 
