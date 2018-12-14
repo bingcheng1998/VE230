@@ -24,7 +24,7 @@ According to the student handbook (2015 version),
 
 ---
 
-## Course Profile**
+## Course Profile
 
 Degree Program: 
 
