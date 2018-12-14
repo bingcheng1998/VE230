@@ -12,7 +12,19 @@ According to the student handbook (2015 version),
 
 ------
 
-## **Course Profile**
+### Slides 
+
+![image-20181214163333195](https://ws4.sinaimg.cn/large/006tNbRwly1fy6cygkj7uj30x80is42e.jpg)
+
+---
+
+### Handwritten notes
+
+![image-20181214163421648](../../../../Library/Application Support/typora-user-images/image-20181214163421648.png)
+
+---
+
+## Course Profile**
 
 Degree Program: 
 
